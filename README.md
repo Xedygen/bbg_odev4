@@ -1,1 +1,1 @@
-# bbg_odev4
+# notum açıklanınca eklerim (belki)
